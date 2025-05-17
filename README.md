@@ -1,6 +1,6 @@
 hii, i go by seb and use he/they/it prnouns.
 
-c+h hea3vily encouraged no need t9o ask. also im usually never afk unless stated in my s9tat9us. also i wont talk much.
+c+h hea3vily encouraged no need t9o ask. also im usually never afk unless stated in my s9tat9us and i wont talk much.
 
 int9erest: roblox, forsaken, pressure, block 9tales, regretevator, phighting, quaver, osu, ultrakill.
 

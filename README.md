@@ -1,3 +1,1 @@
-HELLO call me doom or wtv else u like!
-im usually hanging around the bakery or docks, c+h is heavily encouraged!! dont be afraid to int with me, i promis i dont bite :>
-also check out my strawpage! (warning for bright colors tho ^_^
+hi im doom orrr well i hav other names too (check my pronouns page :P) im usually hanging around at the roblox area near the bakery orr at docks(rarely) c+h is verry encouraged. i dont talk much to ppl who arent close friends soo js keep that in mind ^^
